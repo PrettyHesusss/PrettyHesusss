@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PrettyHesusss
-- 👀 I’m interested in ...
+- 👀 I’m interested in c-walk and cookin` athem
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on microsoft
 - 📫 How to reach me vk.com/wazzup2014812
 
 <!---
